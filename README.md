@@ -7,3 +7,6 @@ Más información:
 http://www.atic.cl/sistema-de-remuneraciones-remunexcel/
 
 
+CONTRASEÑA DE APERTURA: apoyoti.com ó atic.cl
+
+
